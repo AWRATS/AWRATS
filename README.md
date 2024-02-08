@@ -1,0 +1,7 @@
+- 👋 Hi, I’m RATS
+- 👀 I’m interested in your mom, numetal, hot girls
+- 🌱 I’m currently learning nothing i just have this to make friends abd blooket haks
+- 💞️ I’m looking to collaborate on your mom
+- 📫 How to reach me DISCORD RAAAAAAAAAAAAA
+- 😄 Pronouns: Yours (with rizz)
+- ⚡ Fun fact: im like super gay(for you)
